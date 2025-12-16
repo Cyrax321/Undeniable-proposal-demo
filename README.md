@@ -1,1 +1,1 @@
-undeniable Proposal for yah 🫵🏻😊❤️ 
+undeniable Proposal 😊❤️ 
